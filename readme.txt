@@ -1,1 +1,1 @@
-there is nothing to read, just exit please:(
+本科生软件工程课程实验作业，相信你们看了也学不到什么东西~(￣▽￣)~*还是退了吧。
